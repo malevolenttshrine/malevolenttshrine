@@ -9,6 +9,8 @@ call me Kurapika , or whoever my skin is .
 - potentially dark themes or humor in my skins or names , will stop if asked to .
 - i fruequent both 18+ and safe server , feel free to say hello ^.^
 - Path of Titans player >:F
+- hxh , devilman ova&crybaby , banana fish , small bit of mha & jjk.
+- first date idea : ur much stronger and bigger than me but u let me beat u up ^.^
 
 no dni neccessarily but if you freak me out i will temp hide u  
 
