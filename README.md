@@ -12,7 +12,9 @@ call me Kurapika , or whoever my skin is .
 
 no dni neccessarily but if you freak me out i will temp hide u  
 
-![hxh-leopika](https://github.com/user-attachments/assets/3d7f1d1d-814d-44f0-9a03-591958bc8100)
+![kurapika-anime](https://github.com/user-attachments/assets/a00fc7cc-dad9-4130-8b34-92f6ca5e8d41)
+
+
 
 <!---
 kurapiika/kurapiika is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
