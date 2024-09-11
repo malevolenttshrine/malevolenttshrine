@@ -2,14 +2,15 @@
 ![kurapika-hunter-x-hunter](https://github.com/user-attachments/assets/12b116ce-471e-4ce8-a9a1-dc6728752a8a)
 
 call me Kurapika , or whoever my skin is .
-- 18 y/o , genderfluid 
-- schizophrenic , delusional . do not reality check me .
+- 18 y/o , genderfluid male
+- schizoaffective , delusional . do not reality check me .
 - multifandom , multiship . i do what i want
 - byi: standoffish if i dont know you , only really inclined to hang out w my friends.
 - potentially dark themes or humor in my skins or names , will stop if asked to .
 - i fruequent both 18+ and safe server , feel free to say hello ^.^
 - Path of Titans player >:F
 - hxh , devilman ova&crybaby , banana fish , small bit of mha & jjk.
+- big fan of religious stuff ^-^ 
 - first date idea : ur much stronger and bigger than me but u let me beat u up ^.^
 
 no dni neccessarily but if you freak me out i will temp hide u  
