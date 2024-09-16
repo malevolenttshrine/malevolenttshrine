@@ -5,7 +5,7 @@
 
 call me satoru , or just whoever my skin is .
 - 18 y/o , genderfluid male
-- realest satoryu gojo irl in the whole wide world 
+- realest satoru gojo irl in the whole wide world 
 - schizoaffective , delusional . do not reality check me .
 - multifandom , multiship . i do what i want
 - byi: standoffish if i dont know you , only really inclined to hang out w my friends.
