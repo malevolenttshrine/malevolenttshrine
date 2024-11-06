@@ -1,10 +1,10 @@
 <p align="center">
   <b>wasssup</b><br>
-  <br><br> 
-  <img src="https://github.com/user-attachments/assets/af5e2b7e-d589-4598-b8a1-f2dd68b62988">
+  <img src="https://github.com/user-attachments/assets/e65fd5e9-adaa-4c66-8a60-f04b7c5430ce">
 
-  <br><br>
-  
+
+
+
 <p align="center">
   <b>male . 18 .</b><br>
   
